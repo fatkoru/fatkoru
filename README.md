@@ -8,4 +8,5 @@
 
 **segue la no insta🎰: @kauazzx._**
 
-![](https://tenor.com/pt-BR/view/walk-march-guns-rifles-gif-17434135)
+
+![](https://media1.tenor.com/m/x2OanrtVW4EAAAAC/walk-march.gif)
