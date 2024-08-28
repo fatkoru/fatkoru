@@ -8,4 +8,4 @@
 
 **segue la no insta🎰: @kauazzx._**
 
-![]https://tenor.com/pt-BR/view/bandido-danasdkdasasd-dança-gif-21088236
+![](https://tenor.com/pt-BR/view/bandido-danasdkdasasd-dança-gif-21088236)
